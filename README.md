@@ -1,1 +1,2 @@
 # -Estrategias-para-optimizar-la-renta-fija
+La renta fija sigue siendo clave en la inversión, pero su gestión debe adaptarse a la volatilidad. La diversificación geográfica reduce riesgos, el ajuste de duración protege ante cambios en tasas, y los bonos ligados a la inflación ayudan a mantener el poder adquisitivo. Además, una buena planificación fiscal maximiza el rendimiento neto. En mercados inciertos, la flexibilidad y la estrategia activa son fundamentales.
